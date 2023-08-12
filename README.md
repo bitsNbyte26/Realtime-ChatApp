@@ -1,10 +1,11 @@
 # talk_A_tive
 ![add rem](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/4703396c-847a-488e-b2f1-dabc394b9deb)
+![group + notif](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/6cbff69e-10d0-4d91-8d92-23e030c162ff)
+![login](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/4246f22b-6974-44d5-99dc-238a4f1efb7e)
+![mainscreen](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/d9972d96-bb47-4afa-be00-5c702eb04dd1)
+![new grp](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/ef98df8e-14d0-4e08-b179-5d7d035d43e5)
+![profile](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/6e7c2c4c-f1b7-4280-97fa-e55543ec752c)
+![real-time](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/77cfae88-67c3-4e99-9dd9-454e4f0426dc)
+![search](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/489cffa5-c1f2-4201-a022-57bb917331e2)
 ![signup](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/cf8f2fed-649b-4ea9-a626-434c12e0226b)
-![signup](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/670f22ef-46ba-4b70-bcd9-5855b46fc7cb)
-![signup](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/123ad050-58cb-44f6-940b-bfca767133b0)
-![signup](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/5b893135-9053-49b6-81a0-36fef0e93029)
-![signup](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/2da36d67-b189-402a-89f6-a2a397b49873)
-![signup](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/b7189f0a-14cd-43ab-bd36-7a0b7eb869c0)
-![signup](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/8b11d1d1-6629-4e27-9ce7-318eac291af2)
-![signup](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/31f7ade4-42a2-4ad6-b6dc-49266ae94954)
+
