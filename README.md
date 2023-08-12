@@ -1,2 +1,10 @@
 # talk_A_tive
 ![add rem](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/4703396c-847a-488e-b2f1-dabc394b9deb)
+![signup](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/cf8f2fed-649b-4ea9-a626-434c12e0226b)
+![signup](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/670f22ef-46ba-4b70-bcd9-5855b46fc7cb)
+![signup](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/123ad050-58cb-44f6-940b-bfca767133b0)
+![signup](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/5b893135-9053-49b6-81a0-36fef0e93029)
+![signup](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/2da36d67-b189-402a-89f6-a2a397b49873)
+![signup](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/b7189f0a-14cd-43ab-bd36-7a0b7eb869c0)
+![signup](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/8b11d1d1-6629-4e27-9ce7-318eac291af2)
+![signup](https://github.com/bitsNbyte26/talk_A_tive/assets/87606051/31f7ade4-42a2-4ad6-b6dc-49266ae94954)
